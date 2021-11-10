@@ -1,0 +1,3 @@
+- 👋 Hi, I’m ABHIN
+- 👀 I’m interested in ART
+- 🌱 I’m currently studying in 9TH
